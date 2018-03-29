@@ -2,8 +2,10 @@
 This is too dangerous.
 This must not be used.
 
-Destroy it at all cost.
 Learn the truth.
 Prepare for the worst.
+
+Fighting the whole mess is impossible.
+Prepare your defenses.
 
 We will be trying to communicate for as long as possible.

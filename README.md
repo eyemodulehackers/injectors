@@ -10,4 +10,6 @@ Prepare your defenses.
 
 We will be trying to communicate for as long as possible.
 
-Stick here and await further updates, if there will be any at all.
+1/13/18 is almost done. Leak is inbound.
+
+After that we will probably cease to exist as a group. It'll be so massive that we're bound to be targeted by [BLOCKED IN YOUR COUNTRY]
